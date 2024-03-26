@@ -8,4 +8,4 @@ a.marakhin2077@gmail.com
 
 ### Find me on 🐱‍🏍
 
-- [LinkedIn](https://www.linkedin.com/in/aleksei-marakhin-681037205/)
+- [LinkedIn](https://www.linkedin.com/in/oleksii-marakhin/)
